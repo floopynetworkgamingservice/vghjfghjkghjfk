@@ -1,4 +1,4 @@
-Here is the link to my game: https://monjeydaguineapig.github.io/SpaceClicker/
+Here is the link to my game: https://monjeydaguineapig.github.io/cookieClickerUnblocked.github.io/
 
 
 
